@@ -10,6 +10,6 @@
 
 <p align="center">
   <a href="https://imperiumroma.atabook.org/"> sign atabook </a> •
-  <a href="https://www.miguellash.dev"> draw on my strawpage </a> •
+  <a href="https://romansmusem.straw.page"> draw on my strawpage </a> •
   <a href="discordapp.com/users/803366669334347816"> discord </a> 
 </p>
