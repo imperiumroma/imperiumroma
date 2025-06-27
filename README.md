@@ -1,4 +1,4 @@
-<p align="center"> remaking ts give me a moment </p>
+<p align="center"> remaking this give me a moment </p>
 <p align="center">
   <a href="https://imperiumroma.atabook.org/"> sign atabook </a> |
   <a href="https://romansmusem.straw.page"> draw on my strawpage </a> |
