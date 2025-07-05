@@ -2,7 +2,9 @@
 
 ![tumblr_061e32ed5bf645722fade14727ad5ee9_fab9c1e9_540](https://github.com/user-attachments/assets/6162b1ca-b778-4178-a2d3-89e8d41c7be0)  
 
-  __roman__ _or_ __mig__, i have no dni list so feel free to <ins>int</ins>! 
+  __roman__ _or_ __mig__, have no dni list so feel free to <ins>int</ins>! 
+  
+  i really really love jjba....fans int pls 🥺 and ill love you forever... 
 
 </div>
 
