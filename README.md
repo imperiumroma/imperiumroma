@@ -13,7 +13,7 @@
 
 <p align="center">
   <a href="https://imperiumroma.atabook.org/"> sign atabook </a> |
-  <a href="https://sonochinosadamejojo.straw.page"> draw on my strawpage </a> |
+  <a href="https://romansmusem.straw.page"> draw on my strawpage </a> |
   <a href="https://discord.com/users/803366669334347816"> discord </a> 
 
 <div align="center">
