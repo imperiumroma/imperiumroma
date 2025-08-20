@@ -13,7 +13,7 @@
 
 <p align="center">
   <a href="https://imperiumroma.atabook.org/"> sign atabook </a> |
-  <a href="https://https://rentry.co/slipthenoose"> main rentry </a> |
+  <a href="https://rentry.co/slipthenoose"> main rentry </a> |
   <a href="https://romansmusem.straw.page"> draw on my strawpage </a> | 
  <a href="https://rentry.co/droppingbytoshowsomelove"> lovemail </a> 
 
