@@ -14,7 +14,7 @@
 <p align="center">
   <a href="https://imperiumroma.atabook.org/"> sign atabook </a> |
   <a href="https://rentry.co/slipthenoose"> main rentry </a> | 
- <a href="https://rentry.co/droppingbytoshowsomelove"> lovemail </a> 
+ <a href="https://rentry.co/droppingbytoshowsomelove"> lovemail </a> |  <a href="https://rentry.co/chlorosis"> check this out pls </a> 
 
 <div align="center">
 
