@@ -2,13 +2,8 @@
 
 
 
-<img width="256" height="256" alt="E0os0H2XMAMNNmk" src="https://github.com/user-attachments/assets/fab5156b-3d51-4bec-89fd-2bd6a7dbd07d" />
-
-
- 19 | __mig__ _or_ __yugi__ _or_ __roman__, i have no dni list so feel free to <ins>int</ins>! 
+ hi im mig i have no dni list feel free to <ins>int</ins> hi
   
-  i really really love jjba....fans int/follow me pls 🥺 and ill love you forever... 
-
 </div>
 
 <p align="center">
