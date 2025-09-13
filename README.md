@@ -2,7 +2,7 @@
 
 
 
- hi im mig i have no dni list feel free to <ins>int</ins> hi
+ 19 | hi im mig i have no dni list feel free to int  
   
 </div>
 
