@@ -1,5 +1,7 @@
 <div align="center">
 
+<img width="478" height="350" alt="image" src="https://github.com/user-attachments/assets/e8d0adbb-fcac-4df3-b66f-58b618b65fe2" />
+
 
 
  19 | hi im mig i have no dni list so feel free to talk to me i crave for social interaction   
