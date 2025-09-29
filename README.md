@@ -4,7 +4,7 @@
 
 
 
- 19 | hi im mig i have no dni list so feel free to talk to me i crave for social interaction   
+ 19 | hi im mig i have no dni list so feel free to talk to me i love social interaction   
   
 </div>
 
