@@ -1,7 +1,6 @@
 <div align="center">
 
-<img width="478" height="350" alt="image" src="https://github.com/user-attachments/assets/e8d0adbb-fcac-4df3-b66f-58b618b65fe2" />
-
+![39a1fce3bbefaa2ee9d3af47e4f549f8](https://github.com/user-attachments/assets/bfea1c44-41e9-4dc8-9b03-3330a728afaf)
 
 
  19 | hi im mig i have no dni list so feel free to talk to me i love social interaction   
