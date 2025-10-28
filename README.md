@@ -5,7 +5,6 @@
 
  19 | hi im mig i have no dni list so feel free to talk to me i love social interaction
  
- currently looking for artists to commission...hmu you got open commissions... 
   
 </div>
 
