@@ -1,7 +1,6 @@
 <div align="center">
 
-![39a1fce3bbefaa2ee9d3af47e4f549f8](https://github.com/user-attachments/assets/bfea1c44-41e9-4dc8-9b03-3330a728afaf)
-
+[![Screenshot-2025-11-12-7-53-27-PM-50.png](https://i.postimg.cc/Qdp20vd1/Screenshot-2025-11-12-7-53-27-PM-50.png)](https://postimg.cc/mPgprXMg)
 
  19 | hi im mig i have no dni list so feel free to talk to me i love social interaction
  
