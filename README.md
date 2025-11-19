@@ -8,8 +8,8 @@
 </div>
 
 <p align="center">
-  <a href="https://imperiumroma.atabook.org/"> sign atabook </a> |
-  <a href="https://rentry.co/slipthenoose"> main rentry </a> | <a href="https://rentry.co/theperfectidiot"> yap rentry </a> |
+  <a href="https://imperiumroma.atabook.org/"> sign atabook </a> | <a href="https://rentry.co/imperiumroma"> main rentry </a> |
+  <a href="https://rentry.co/slipthenoose"> other rentry </a> |
  <a href="https://rentry.co/droppingbytoshowsomelove"> lovemail </a> 
 
 <div align="center">
