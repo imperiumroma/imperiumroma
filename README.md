@@ -1,16 +1,11 @@
 <div align="center">
 
-[![Screenshot-2025-11-12-7-53-27-PM-50.png](https://i.postimg.cc/Qdp20vd1/Screenshot-2025-11-12-7-53-27-PM-50.png)](https://postimg.cc/mPgprXMg)
 
- 19 | hi im roman i have no dni list so feel free to talk to me i love social interaction
+ 19 | hi im roman im remaking this come back later ok..?
  
   
 </div>
-
-<p align="center">
-  <a href="https://imperiumroma.atabook.org/"> sign atabook </a> | <a href="https://rentry.co/imperiumroma"> main rentry </a> |
-  <a href="https://rentry.co/corpszparty"> rentry collection </a> |
- <a href="https://rentry.co/droppingbytoshowsomelove"> lovemail </a> 
+ 
 
 <div align="center">
 
