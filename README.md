@@ -1,10 +1,11 @@
 <div align="center">
 
-<img src="https://pbs.twimg.com/media/G3t6CIzW0AAth8F?format=jpg&name=4096x4096" width="50%">
+![tumblr_72396ee667bd92df4936dc6490d684fa_0825205b_250](https://github.com/user-attachments/assets/a4eefe70-a102-4874-9f5f-abd42ac163f3)
+
 
 blk 19yo | hello i'm roman! i'm not as social as i used to be on here 
 
-but don't be ever afraid reach out to me i am very kind i promise
+but don't be ever afraid reach out to me i am very kind i promise..!
 </div>
 
 <div align="center">
